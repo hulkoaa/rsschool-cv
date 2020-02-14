@@ -1,1 +1,1 @@
-# rsschool-cv
+ https://hulkoaa.github.io/rsschool-cv/cv
